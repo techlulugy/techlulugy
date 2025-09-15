@@ -1,4 +1,4 @@
-<h1 align="left">👤 <strong>Luísa Nunes</strong></h1>
+<h1 align="left"><strong>👩🏻 Lulu</strong></h1>
 
 #### Freshman Student 
 > Currently improving skills on 
